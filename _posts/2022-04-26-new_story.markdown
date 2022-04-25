@@ -1,0 +1,27 @@
+---
+layout: post
+title:  "New Story!"
+date:   2022-04-26 11:16:20 +0200
+categories: stories
+---
+# Hello!
+
+## Welcome
+
+everybody
+
+❤️
+
+
+* [ ]  todo1
+* [ ]  todo2
+
+
+| col1 | col2 | col3 |
+| ------ | ------ | ------ |
+| wad  | wadw | ww   |
+| wdw  | dw   | wadw |
+
+
+
+dwa
