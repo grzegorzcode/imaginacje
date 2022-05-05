@@ -24,6 +24,9 @@ titles:
   fr-LU   : *FR
   # @end locale config
 key: downloads
+show_title: false
+aside:
+  toc: true
 ---
 
 ## Jelonek 
