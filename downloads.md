@@ -59,25 +59,14 @@ aside:
 
 <div class="grid">
   <div class="cell cell--5">
-  <a class="button button--success button--rounded button--lg" href="#"><i class="fas fa-download"></i> Jelonek Tom 1 - epub </a>
+  <a class="button button--success button--rounded button--lg" href="https://drive.google.com/file/d/1bCR7xccMowMEUKl2K3tHdQjk5aIEz7gN/view?usp=sharing" target="_blank"><i class="fas fa-download"></i> Jelonek Tom 1 - epub </a>
   </div>
 <div class="cell cell--2"></div>
   <div class="cell cell--5">
-  <a class="button button--success button--rounded button--lg" href="#"><i class="fas fa-download"></i> Jelonek Tom 1 - mobi </a>
+  <a class="button button--success button--rounded button--lg" href="https://drive.google.com/file/d/1SaS5kRl0DyvSA9mGkeXnJNKO4dO4ee5g/view?usp=sharing" target="_blank"><i class="fas fa-download"></i> Jelonek Tom 1 - mobi </a>
   </div>
 
 </div>
 
-
-## Wiersze  
-
-### Między mną, a [Tom 1]
-
-<a class="button button--success button--rounded button--lg" href="#"><i class="fas fa-download"></i> Jelonek Tom 1 - epub </a>
-
-Zawiera wiersze:
-
-- ab
-- cd
 
 
