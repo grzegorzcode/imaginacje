@@ -1,0 +1,37 @@
+## I
+
+```
+ Nagły wyrzut adrenaliny rozedrgał powietrze. Mięśnie napięły się w sekundzie, uwidaczniając sieć naczyń krwionośnych. Oczyścił umysł, by skoncentrować się tylko i wyłącznie na misji. Wysunął lekko miecz z pochwy i namacał kołczan w poszukiwaniu miękkich lotek strzał. Wyskoczył momentalnie, odbijając się z lewej stopy, jednocześnie wyciągając ostrze. Ciął pierwszego przez bark. Drugi uderzył w atakującego paskudnym, krótkim cięciem w pachwinę ale jego już tam nie było. Oparłwszy stopę o drzewo, wywinął się przewrotem w tył. Zamachnął się i klinga z łatwością oddzieliła zastygłą w grymasie niedowierzania głowę od reszty ciała, które zwaliło się w akompaniamencie hurgotu zbroi na ziemię. To jednak nie był koniec. W bramie ukazał się rycerz, mierzący prawie dwa metry, w cudacznym, najeżonym kolcami pancerzu. Z wnętrza hełmu buchała piana, a w ręce dzierżył rodzaj halabardy, świecącej delikatną zielonkawą poświatą. Wtem na polanę, wymachując szablami, wjechało trzech jeźdźców w lekkich zbrojach.  Piekielny paladyn wymamrotał kilka słów w niezozumałym języku i przezroczysta bańka o średnicy kilkudziesięciu metrów uwieziła jego oraz intruza, blokując dostęp z zewnątrz. Konie stanęły dęba, a odsiecz mogła jedynie obserwować dalszy rozwój wypadków.
+```
+*   No dobra - pomyślał zuchwały napastnik - albo ja, albo on.
+*   Jak myślisz, że się wystraszyłem tego mambo jumbo przed chwilą, to jesteś w błędzie! - wykrzyczał i ruszył biegiem. Porwał z pleców łuk i jął szyć strzałami, w ruchu, jedna za drugą. Te jednak tylko odbijały się od fantazyjnej powłoki. Halabarda rozjarzyła się na czerwono i wtedy zorientował się, że coś jest nie tak, ale było już za późno, by cokolwiek zrobić.. Transparentny balon zniknął, tak samo jak jego twórca. Konie, pospieszone ostrogami, dokłusały do leżącego człowieka.
+    *   To już koniec, życie uchodzi ze mnie - wycharczał resztkami sił Gazela - żegnaj Adelo, Leonidasie i Tytusie, żegnajcie Srebrne Góry, Zagrabione Ziemie i Dolino Nadziei. Zawiodłem.  
+        Oczy zalewały mu potoki ciemnej krwi. Nie kontrolował ni rąk, ni nóg. Przysiągłby, że doświadcza, jak jego duch odkleja się od ciała. Jeszcze kilka minut i zgaśnie. Rozpłynie się w nicość. Czy bał się? Nie, był raczej podekscytowany. Na polu walki, w karczemnych bijatykach, w łożu kochanki - nigdy nie czuł się tutaj tak prawdziwy, jak teraz, gdy konał.  
+        Stali nad nim. Wpatrywali się pustymi oczyma bez wyrazu. Spodziewał się, że może chociaż uronią łzę albo wypowiedzą kilka banałów, aby mu ulżyć; że Adela, jego Adela, złapie go za rękę, pogładzi po czole i obdaruje pocałunkiem na tę ostatnią drogę. Wreszcie, że usypią mu małą mogiłę, na kamieniu wyrywszy inicjały i parę słów - *tu spoczywa nasz przyjaciel, obrońca ludu*.Nic takiego się nie wydarzyło. Cała trójka postała jeszcze kilka minut, niewzruszona widokiem agonii drucha, po czym rozjechali się, każde w inną stronę. Umarł, a wszechświat pozostał obojętny. Niedługo potem ktoś podszedł do zwłok. Ograbił je z wszystkiego, co cenne. Zabrał, zrobiony na zamówienie, miecz zdobiony runami, prawie nowy kołczan, skórzane buty, nieprzemakalny płaszcz i płaty suszonego mięsa.  
+        Umarł, pierwszy raz, ale czy ostatni?
+
+## 2
+
+```
+Krzysztof Gazela, Jelonkiem zwany, energicznym ruchem pociągnął z tyłu głowy i zrzucił gogle umożliwiające zabawę w wirtualnej rzeczywistości, po czym rozsunął zamki wypełnionych czujnikami rękawic i nakolanników. Całość wrzucił do przezroczystego, prostokątnego pojemnika stojącego w rogu niedużego pokoju i odwrócił się w kierunku zaproszonych znajomych.
+- No to jest wprost niepojęte! - oburzał się Krzysztof - wydałem na tę grę tyle pieniędzy i co?  Nie chodzi o to, że mnie zabili na łatwym, tylko że tamci temat zupełnie olali. Miał być realizm, głębokie relacje, symulacja życia społecznego. Sztuczna inteligencja od siedmiu boleści! Ja tam zdycham i zero czegokolwiek! A nie, przepraszam, okradli mnie. Symulator hieny cmentarnej, nie gra przygodowa!
+Rozdrażniony, wypił duszkiem resztę trójkolorowego drinka na bazie whisky i likieru wiśniowego. Jeden z kolegów, pragnąc najwyraźniej zażartować, skwitował zaistniałą sytuację pointą, iż on komputerowych wojów rozumie i sam także po Jelonku by nie płakał. Zamilkł pod piorunującym wzrokiem zainteresowanego. Ktoś z kuchni, przekrzykując kakofonię głosów, zaordynował na uspokojenie sytuacji przejście na repertuar kooperacyjny. 
+Wieczór gier dobiegł końca. Gazela mógł się wreszcie położyć w łóżku. Wcześniej powrzucał co trzeba do zmywarki i przeprowadził toaletę własną. Nie mógł zasnąć. Dręczyło go, chociaż być może nie powinno, co usłyszał. 
+- Czy faktycznie nikogo nie obchodzę? 
+```
+Szukał przyczyn, przewin ze swojej strony. Wiercił się z boku na bok, kilka razy wstał, by napić się wody, popatrzeć przez okno. Gdy wracał do sypialni, dioda stanu wstrzymania konsoli migała niczym wyrzut sumienia albo palec stukający miarowo o czoło. Urządzenie mające służyć do zabawy, krzyczało: *myśl, nie przestawaj myśleć, póki nie znajdziesz rozwiązania*. Po godzinach rozterek znurzenie wygrało.  
+Poranek, jak to często się zdarza, wraz z promieniami słońca, ogrzał go ciepłym przeświadczeniem, że zna przyczynę oraz lek na trawiące go poczucie samotności. Rytuał pieleszowego przeciągania się zwieńczyło głośne chrupnięcie karku. Po odczekaniu kilku sekund, wyraźnie niezadowolony z efektu, poprawił na drugą stronę. Pokręcił kilka razy głową, odgiął, wygiął i uznawszy, że lepiej nie będzie, usiadł na boku łóżka. Niespiesznie założył kapcie, mimochodem ziewając i patrząc tępo w dal udał się do kuchni. Krzysztof, chociaż na codzień starał się zdrowo odżywiać, nie lubił wyrzucać jedzenia, a przynajmniej w tym momencie stanowiło to znakomicie wygodną wymówkę, by na śniadanie zjeść pozostałe z wczoraj chipsy, paluszki, dwa kawałki pizzy, a to wszystko zapić szklanką wygazowanej pepsi. Przeprowadził mechanicznie toaletę własną, założył gustowną, kraciastą koszulę oraz lekko znoszone jeasny i po wsadzeniu na nogi adidasów, dokładniej to podróbek z pobliskiego bazarku, wyruszył w drogę do pracy. Zawsze, gdy otwierał drzwi, pojawiała się irracjonalna myśl, że może dziś jest ten dzień, kiedy w progu będzie stał Gandalf i zaproponuje mu wyprawę pełną przygód. Posiadał głębokie przekonanie, iż nie wahałby się jak Bilbo. W jego przypadku cały początek Hobbita zawarłby się w kilku zdaniach:  
+\- Cześć, tu Gandalf - rzecze Gandalf  
+\- No hej - rzecze Gazela  
+\- Idziesz, Krzyś - pyta Gandalf  
+\- A czy dzik sra w lesie? - odpowiada (pytaniem retorycznym) Gazela  
+Problem był następujący - życie to nie film, czy bajka. Nie zna żadnych czarodziejów, co najwyżej osiedlowych kosmitów, a z nieoczekiwanych spotkań na klatce, to miał jedno - z kupą psa sąsiada. Westchnął głośno, zrobił krok, odwrócił się na pięcie, przekręcił klucz w zamku, poszedł do windy, wrócił sprawdzić czy na pewno zamknął, ponowił trasę do windy, gdy jechała na jego piętro zdążył kolejny raz zweryfikować poziom zabezpieczeń swojego lokalu i finalnie nacisnął przycisk parter, mimo wszystko niezupełnie przekonany, czy wszystko wykonał poprawnie..
+
+## 3
+
+```
+-- 
+```
+zaproszeenie - zal to ida - podrobka zespolu - tojtoj - diabel
+
+
