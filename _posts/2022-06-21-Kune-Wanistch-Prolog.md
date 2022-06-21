@@ -1,5 +1,5 @@
 ---
-title: Prolog
+title: Kune Wanistch - Prolog
 tags: Kune
 aside:
   toc: true
@@ -21,6 +21,7 @@ article_header:
 ## PROLOG
 
 Migotliwe światło dziesiątek, jak nie setek świec, rozświetlało pomieszczenie. Nie ostała się ani jedna enklawa mroku. 
+
 <!--more-->
 
 Twarze, smagane kołyszącymi się płomieniami, przybierały bardzo nienaturalne wyrazy. A były to twarze mężczyzn. Rzec można, dość podłych mężczyzn. Szanowani obywatele nie zachodzili do karczmy Pod Katowskim Toporem. Klientów obsługiwano zza solidnej lady, która często służyła za tarczę dla obsługi. Drzwi znajdowały się naprzeciw. Solidne, dębowe, o spiczastym sklepieniu. 
